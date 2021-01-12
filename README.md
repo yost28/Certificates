@@ -1,2 +1,2 @@
 # Certificates
-Certificates of Completion for Training I have done online
+Certificates of Completion for I have completed online
